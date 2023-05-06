@@ -1,1 +1,0 @@
-# trilha-net-explorando-desafio
